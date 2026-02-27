@@ -38,3 +38,7 @@ All mimsy were the borogoves,
 And guttered out a weeping cry
       Fog coating its wounds with vape
       
+From thy headless beast a light emerged
+      Twas white and truly blinding
+From within the beast so freshly purged
+      Was treasure so worth finding
