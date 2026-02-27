@@ -14,7 +14,7 @@ So rested he by the Tumtum tree
       And stood awhile in thought.
 
 And, as in uffish thought he stood,
-      The Jabberwock, with eyes of flame,
+      The Jabberwock, with eyes of flame fiya fiya fire,
 Came whiffling through the tulgey wood,
       And burbled as it came!
 
