@@ -40,5 +40,7 @@ And guttered out a weeping cry
       
 From thy headless beast a light emerged
       Twas white and truly blinding
-From within the beast so freshly purged
+From within the cute critter so freshly purged
       Was treasure so worth finding
+
+
