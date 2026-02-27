@@ -32,3 +32,9 @@ O frabjous day! Callooh! Callay!”
       Did gyre and gimble in the wabe:
 All mimsy were the borogoves,
       And the mome raths outgrabe.
+
+'Twil Jabberwocks neck rose nigh'
+     Squirming neck agape
+And guttered out a weeping cry
+      Fog coating its wounds with vape
+      
